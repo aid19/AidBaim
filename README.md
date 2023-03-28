@@ -1,3 +1,3 @@
 Hey you 🫵
-Welcome to my Github Repository
+Welcome to my Github Page
 I'am Aida 👾
